@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TTVywmy
+- 👀 I’m interested in games and music
+- 🌱 I’m currently learning how to survive in this world
